@@ -1,0 +1,1 @@
+Buna seara! Ti-am trimis mesaj joi ca nu voi putea ajunge la laborator, si din cauza aceasta nu am inteles foarte bine conceptele pentru compulsory. Am incercat sa lucrez la el, dar nu am terminat, si vreau sa vorbesc cu niste colegi sa-mi explice putin ce s-a discutat la laborator ca sa pot rezolva in totalitate compulsory-ul.
