@@ -1,0 +1,1 @@
+Am completat C7 cu ce nu am apucat sa fac in timpul laboratorului.
