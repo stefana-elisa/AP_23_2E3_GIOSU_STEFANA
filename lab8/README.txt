@@ -1,0 +1,1 @@
+Scuze de intarziere, nu am avut acces la laptop pana acum, astfel nu am reusit sa mai adaug nimic nici la tema.
